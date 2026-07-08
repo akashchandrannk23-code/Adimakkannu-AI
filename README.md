@@ -1,1 +1,1 @@
-# Adimakkannu-AI
+# Adimakkannu AI
